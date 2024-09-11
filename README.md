@@ -1,12 +1,12 @@
 ## Hi,I'M Axel Uriel  👋
 ![WhatsApp Image 2024-09-10 at 8 35 27 PM](https://github.com/user-attachments/assets/607ea7f6-7e6e-4da5-9c11-b2cb5578cc6e)
 - 🔭 I’m currently working on ...
-- estoy en busca de chambaaa 
+- estoy en busca de chambaaa 🫣
 - 🌱 I’m currently learning ...
-- soy estudiante de la licenciatura de computacion en la uabjo de oaxaca 
+- soy estudiante de la licenciatura de computacion en la uabjo de oaxaca 💻
 - 🤔 I’m looking for help with ...
-- sistemas en computacion 
+- sistemas en computacion 💻
 - 📫 How to reach me: ...
-- atraves de redes sociales facebook,gmail,instagram,whattssap 
+- atraves de redes sociales facebook,gmail,instagram,whattssap 📞
 - ⚡ Fun fact: ...
-- soy estudiante foraneo 
+- soy estudiante foraneo 🧑‍🏫
