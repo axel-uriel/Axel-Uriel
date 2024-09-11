@@ -1,5 +1,5 @@
 ## Hi there Axel Uriel  👋
-[git.docx](https://github.com/user-attachments/files/16957121/git.docx)
+![WhatsApp Image 2024-09-10 at 8 35 27 PM](https://github.com/user-attachments/assets/607ea7f6-7e6e-4da5-9c11-b2cb5578cc6e)
 - 🔭 I’m currently working on ...
 - estoy en busca de chambaaa 
 - 🌱 I’m currently learning ...
