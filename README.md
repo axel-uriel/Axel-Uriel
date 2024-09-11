@@ -1,8 +1,5 @@
 ## Hi there Axel Uriel  👋
-![WhatsApp Image 2024-09-10 at 7 56 47 PM](https://github.com/user-attachments/assets/cfa9d7f8-d0a0-4b26-9cc8-53d015b4a4ff)
-![download](https://github.com/user-attachments/assets/c8e2b790-1c79-41e9-9461-1362b00d875d)
-
-
+[git.docx](https://github.com/user-attachments/files/16957121/git.docx)
 - 🔭 I’m currently working on ...
 - estoy en busca de chambaaa 
 - 🌱 I’m currently learning ...
